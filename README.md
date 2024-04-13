@@ -1,2 +1,1 @@
-merry xmas
 solo musica
